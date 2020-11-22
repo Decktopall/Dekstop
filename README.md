@@ -1,0 +1,2 @@
+# Dekstop
+Umumiy ombor
